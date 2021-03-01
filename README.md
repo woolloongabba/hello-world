@@ -1,4 +1,4 @@
 # hello-world
-first baby step
+first baby struth!!!!!!!!!!!!!!!!!!!!
 
 Bon Vivant, Raconteur, muse, wit....
